@@ -1,0 +1,1 @@
+# 3-sinif-hayat-bilgisi-seruven-32
